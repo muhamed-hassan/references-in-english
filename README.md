@@ -3,6 +3,10 @@
 [**`Warm up`**](https://www.youtube.com/watch?v=ScNNfyq3d_w)
 
 ***
+
+[`Interactive Dictionary`](https://www.dictionary.com/)
+
+***
 ***
 
 ![hardest-part-learning-english](https://user-images.githubusercontent.com/17825804/219615979-5fc83f18-8ad3-43f8-875e-25aecfd782b5.png)
