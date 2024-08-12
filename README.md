@@ -9,5 +9,6 @@
 ***
 ***
 
-![hardest-part-learning-english](https://user-images.githubusercontent.com/17825804/219615979-5fc83f18-8ad3-43f8-875e-25aecfd782b5.png)
+![knight_by_blackmankxy_dhxhkag-fullview](https://github.com/user-attachments/assets/b2be94d3-55f2-44b8-9161-c6d51a30445d)
+
 
