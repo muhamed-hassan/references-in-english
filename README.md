@@ -6,7 +6,7 @@
 
 ***
 
-**`FYA / FYI:`** Regardless that the English is a global language, there is no need to reach to the mastery-level in it except if you have a bachelor-degree and your job requires interacting with foriegns who do not speak your native language using an official channels of your government. Not the current fucken bullshit misery in multi-national corporations that are full of thugs.
+**`FYA / FYI:`** Regardless that the English is a global language, there is no need to reach to the mastery-level in it except if your legal-job requires interacting with foriegns who do not speak your native language using an official channels of your government. Not the current fucken bullshit misery in multi-national corporations that are full of thugs.
 
 ***
 
