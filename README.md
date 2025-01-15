@@ -8,7 +8,9 @@
 
 **`FYA / FYI:`** Regardless that the English is a global language, there is no need to reach to the mastery-level in it except if your legal-job requires interacting with foriegns who do not speak your native language using an official channels of your government. Not the current fucken bullshit misery in multi-national corporations that are full of thugs.
 
-Please note that your government is responsible to train you well in order to be able to interact effectively with foriegns, unlike the countryside savage dogs of **private-sector** ☠ 💩 🏳️‍🌈 🛡 ⚠ 🚫 ❌ who steals the money of people globally under the cover of fake-english-courses.
+Please note that your government is responsible to train you well in order to be able to interact effectively with foriegns, unlike the countryside savage dogs of **private-sector** ☠ 💩 🏳️‍🌈 🛡 ⚠ 🚫 ❌ (thieves of a country's job market per country) who steals the money of people globally 🌍 under the cover of fake-english-courses. 
+
+Regardless of the low-level of education globally 🌍, what you had been taught in the subject of English language is enough till you start working legally, because you will be trained later if needed and this will be paid by your goverment.
 
 ***
 
