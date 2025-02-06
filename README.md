@@ -12,6 +12,8 @@ Please note that your government is responsible to train you well in order to be
 
 Regardless of the low-level of education globally 🌍, what you had been taught in the subject of English language is enough till you start working legally, because you will be trained later if needed and this will be paid by your goverment.
 
+**`The basic English skills are:`** [writing](https://en.wikipedia.org/wiki/Writing) and [reading](https://en.wikipedia.org/wiki/Reading).
+
 ***
 
 ![knight_by_blackmankxy_dhxhkag-fullview](https://github.com/user-attachments/assets/b2be94d3-55f2-44b8-9161-c6d51a30445d)
